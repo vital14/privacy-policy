@@ -15,4 +15,4 @@ Este aplicativo é distribuído apenas a colaboradores autorizados e convidados 
 Em caso de dúvidas sobre esta política, entre em contato com:
 📧 [vlima@oneelevadores.com.br]
 
-Última atualização: [data]
+Última atualização: [23/07/2025]
